@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pavanatm9909
-- 👀 I’m interested in doing coding
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning UI
 - 💞️ I’m looking to collaborate on MNC
 - 📫 How to reach me atmakuri.pavan9909@gmail.com
